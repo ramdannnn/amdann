@@ -1,0 +1,2 @@
+# amdann
+amdan ganteng
